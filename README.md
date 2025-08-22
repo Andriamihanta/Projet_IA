@@ -9,4 +9,5 @@ Membre du groupe:
 -  MANASINTSOA Doneli Dzyanino (1466 H-F)
 -  RAVELOMALALA Karen Cindy (1412H-F)
 -  RAZAFINDRAINIBE Heritiana Karen (1439H-F)
+-  RAHARINJATOVO Hanitriniaina Franck Jordy (1451H-F)
   
